@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @keugahub
-- 👀 I’m interested in explorung n stuf, most of them including playing
+- 👀 I’m interested in exploring n stuf, most of them including playing
 - 🌱 I’m currently learning time travelling
 - 💞️ I’m looking to collaborate on cavemen
 - 📫 How to reach me: 62739555719
